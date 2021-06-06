@@ -1,2 +1,1 @@
-# Hello-World
-I am new here. Learning as i go.. Actual content coming soon.
+Hello! My nickname is Luna Jade. It is my nickname because it was chosen as my Pagan name; which is the nature-based religion in which I practice. I am very creative. In fact you could definitley say I live a creative lifestyle. I do a lot of different creative things such as; drawing, coloring, writing, and a lot of DIY's. I have a 4 year old daughter and a very handsome fiance. We also have a dog named Brutus who is very rambunctious. 
